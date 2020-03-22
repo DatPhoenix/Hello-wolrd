@@ -1,5 +1,4 @@
 # Hello-wolrd
-Just the hello world rep
 
 Guden ladys and gentlelads. I am Josh aka DatPhoenix. 
 I am a business administration student with his main branch being marketing and a passion fot Videogames. 
